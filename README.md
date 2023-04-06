@@ -1,5 +1,5 @@
 # _**Биография**_ 
- [ФОТО](https://drive.google.com/file/d/1YRgxMWRGqvO0yef8UrCYBaWXanLRNbz9/view?usp=sharing)
+  ![](../img/foto.jpg)
 1. Кузьмин Евгений Владимирович 
 2. Мужчина, 43 года, родился 28 августа 1979
 3. +7 (915) 0568299 — _предпочитаемый способ связи_ _ebg79@yandex.ru_
